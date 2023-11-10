@@ -1,1 +1,1 @@
-Leave me alone, just scripting on my own. Don't snoop around on my profile.
+This account isn't used for scripts anymore. Just a blank github account.
